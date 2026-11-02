@@ -1,0 +1,1 @@
+A fundamental problem of modern life is how can one make decisions?
